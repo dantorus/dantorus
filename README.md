@@ -1,4 +1,4 @@
-## Hi there 👋
+c+h freely, I'm always afk. Whispers is preferred if you want to talk, my public chat is always off
 
 <!--
 **servantofeviI/servantofeviI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
