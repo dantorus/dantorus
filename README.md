@@ -7,4 +7,4 @@ i can be seen with my vocaloids (mostly rin or other types of rin) or evillious 
 im usually with my friend [Jex](https://www.patreon.com/user?u=77023312) too!
 @[shiningumbreon](https://github.com/shiningumbreon) is my main for everything that is not focused on one fandom 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=servantofeviI)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=daughterofevil)
