@@ -1,6 +1,8 @@
 c+h freely, I'm always afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
 i mostly chat through my party members
 
+im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot not unless my friends drags me or i drag them elsewhere or my friends get overwhelmed by the amount of ponies and make their screen lag.
+
 i maybe awake till 5am GMT+8 i may sleep early depending if i have to wake up early for school or some important things to do
 
 i can be seen with my vocaloids (mostly rin or other types of rin) or evillious chronicles cosplays/skins! because this alt account focuses on that!
