@@ -1,4 +1,4 @@
-AGE FRIENDING LIMIT! below 14 plz dni or ill cry I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+AGE FRIENDING LIMIT! below 14 plz dni or ill cry. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
 
 c+h freely, I'm always semi-afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
