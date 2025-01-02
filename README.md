@@ -1,5 +1,7 @@
 AGE LIMIT! below 14 plz dni or ill cry I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
-c+h freely, I'm always afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
+
+
+c+h freely, I'm always semi-afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
 i mostly chat through my party members
 
 im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot not unless my friends drags me or i drag them elsewhere or my friends get overwhelmed by the amount of ponies and make their screen lag.
