@@ -1,5 +1,9 @@
 AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD because ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
+anyone is allowed to interact anytime not unless i put dniuf or dniuf! if you gonna ask what ut means, it means do not interact not unless your a friend or close friends!
+if i put either s-nv or nv expect me not to chat!
+Q - what does nv and s-nv means?
+it means nonverbal and semi-nonverbal, i use these two when im really exhausted or i don't feel like talking a lot and spacing out a LOTTT..
 
 c+h freely, I'm always semi-afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
 i mostly chat through my party members
