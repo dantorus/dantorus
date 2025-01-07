@@ -14,7 +14,7 @@ im usually seen above market or near bsd area on the pine tree with rock, i hone
 i maybe awake till 5am GMT+8 i may sleep early depending if i have to wake up early for school or some important things to do
 
 this GitHub can be seen with my vocaloids (mostly rin or other types of rin) or evillious chronicles cosplays/skins! because this alt account focuses on that!
-im usually with my friend [Jex](https://www.patreon.com/user?u=77023312) and my party members too!
+im usually with my friend Jex or Kara, or my party members which are mostly my close friends ^_^!
 @[shiningumbreon](https://github.com/shiningumbreon) is my main and that is not focused on one fandom 
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=daughterofevil)
