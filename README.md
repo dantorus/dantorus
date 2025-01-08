@@ -1,6 +1,6 @@
-AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD because ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD  ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
-anyone is allowed to interact anytime not unless i put dniuf or dniuf! if you gonna ask what ut means, it means do not interact not unless your a friend or close friends!
+anyone is allowed to interact anytime or you fit in the basic dni criteria OR not unless i put dniuf or dniuc! if you gonna ask what ut means, it means do not interact not unless your a friend or close friends!
 if i put either s-nv or nv expect me not to chat!
 
 Q - what does nv and s-nv means?
