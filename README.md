@@ -2,7 +2,7 @@
   
 ![riliane](https://media.discordapp.net/attachments/1121710115490385980/1328954778927108107/Untitled223_20250115124413.png?ex=67889516&is=67874396&hm=d3643b6cf071fcf6f28429170fe0afe7e654662035382e39feda82a30d00a258&=&format=webp&quality=lossless&width=350&height=350)
 
-(art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862)
+(art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862))
 
 <div align="left">
 AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD  ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
