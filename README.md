@@ -1,6 +1,6 @@
 <div align="center">
   
-![rilianee][(https://ibb.co/0RRHyzzk)
+![rilianee](https://i.ibb.co/S44FwZZ2/Untitled223-20250115124413.webp)
 
 
 (art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862))
