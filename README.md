@@ -1,6 +1,6 @@
 <div align="center">
   
-![rilianee](https://media.discordapp.net/attachments/1121710115490385980/1333387757933953024/Untitled223_20250115124413.png?ex=6798b59e&is=6797641e&hm=7dcbc6e7e14c54c147ae50487fdab39b235ff3b5de921cb3026cb9530569c19f&=&format=webp&quality=lossless&width=644&height=644)
+![rilianee][(https://ibb.co/0RRHyzzk)
 
 
 (art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862))
