@@ -6,23 +6,15 @@
 (art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862))
 
 <div align="left">
-AGE BOUNDARIES / LIMIT! below 14 plz dni or DON'T BE WEIRD  ill cry if you do. I GUESS. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+AGE BOUNDARIES / LIMIT! below 14 plz dni if u want or JUST DON'T BE WEIRD AROUND ME NOR WITH MY FRIENDS THANKS, ill stop talking to you immediately if you start talking about weird stuff that i may or my friends may not or might not like at all. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
 
-update: killing myself when i saw some grammar mistakes ohmygod. im so very sorry for that but its fixed though 
+c+h freely, I'm always offtab or afk. Whispering is highly preferred when you want to yap to me i don't mind. sorry in advance if i didn't see your whisper. i might turn off public chats when i get wayyyy too overwhelmed or is not in the mood to talk at all.
 
-anyone is allowed to interact anytime or not unless you fit in the basic dni criteria OR i put dniuf or dniuc! if your gonna ask what it means, it means do not interact not unless your a friend or close friend!
-if i put either s-nv or nv expect me not to chat!
+im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot. i can also be seen around with my close friends or wherever they are
 
-Q - what does nv and s-nv means?
-it means nonverbal and semi-nonverbal, i use these two when im really exhausted or i don't feel like talking a lot and spacing out a LOTTT..
+i am anti-social but i am nice and will try my best to talk to you, i am not sensitive or whatsoever I generally don't care about stuff you do if its nothing weird likeee... REALLLLYYY WEIRRDDD.. quick warning is that once i open up to you, you might see the real me.
 
-c+h freely, I'm always semi-afk. Whispers is preferred if you want to talk, my public chat can be off sometimes.
-i mostly chat through my party members
-
-im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot not unless my friends drags me or i drag them elsewhere or my friends get overwhelmed by the amount of ponies and make their screen lag.
-or wherever my close friends at or party members!
-
-i maybe awake till 5am GMT+8 i may sleep early depending if i have to wake up early for school or some important things to do
+Kys jokes or other Jokes do not really have bad effects on me, unless ITS REALLY something offensive or a slur that you can't reclaim. that's a big no no buddy
 
 this GitHub can be seen with my vocaloids (mostly rin or other types of rin) or evillious chronicles cosplays/skins! because this alt account focuses on that!
 im usually with my friend Jex or Kara, or my party members which are mostly my close friends ^_^!
