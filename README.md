@@ -4,15 +4,21 @@
 (art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862)
 
 <div align="left">
-AGE BOUNDARIES / LIMIT! below 14 plz dni if u want or JUST DON'T BE WEIRD AROUND ME NOR WITH MY FRIENDS THANKS, ill stop talking to you immediately if you start talking about weird stuff that i may or my friends may not or might not like at all. we can talk normally and be friends/oomfs but that's it!! no closure plzz thx.
+no other dnis just basic dni, nd don't be a weido plzzzz thx i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
 
-c+h freely, I'm always offtab or afk. Whispering is highly preferred when you want to yap to me i don't mind. sorry in advance if i didn't see your whisper. i might turn off public chats when i get wayyyy too overwhelmed or is not in the mood to talk at all.
+i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
 
-im usually seen above market or near bsd area on the pine tree with rock, i honestly don't know why i like to stay on that particular spot. i can also be seen around with my close friends or wherever they are
+PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
 
-i am anti-social but i am nice and will try my best to talk to you, i am not sensitive or whatsoever I generally don't care about stuff you do if its nothing weird likeee... REALLLLYYY WEIRRDDD.. quick warning is that once i open up to you, you might see the real me.
+i have a habit of roaming around the map if im bored
 
-Kys jokes or other Jokes do not really have bad effects on me, unless ITS REALLY something offensive or a slur that you can't reclaim. that's a big no no buddy
+i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original with theee colorsss!!
+
+learn more abt me HERE!! [CLICK!](https://rentry.co/kextendedbyi)
+
+
+shoutout to the ppl(s) who copied some of my pony skins ENTIRELY even though i just made some of them HOURS or DAYS ago, i hate-love y'all <3 
+watch me put y'all in a rentry gallery, if i see some of you or my friends does. 🫶
 
 this GitHub can be seen with my vocaloids (mostly rin or other types of rin) or evillious chronicles cosplays/skins! because this alt account focuses on that!
 im usually with my friend Jex or Kara, or my party members which are mostly my close friends ^_^!
