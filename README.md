@@ -4,13 +4,7 @@
 (art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862)
 
 <div align="left">
-no other dnis just basic dni, nd don't be a weido plzzzz thx i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
-
-i also don't want to interact with kids (below 14) plz be honest with ur age when u talk to me or when u ever introduce yourself to me.
-
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
-
-i have a habit of roaming around the map if im bored
 
 i do not care if u copied the patterns of my pony just dont take the colorz plz.. ok? be original with theee colorsss!!
 
