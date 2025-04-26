@@ -1,7 +1,4 @@
 <div align="center">
-  
-![rilianee](https://media.discordapp.net/attachments/1121710115490385980/1333387757933953024/Untitled223_20250115124413.png?ex=67cec31e&is=67cd719e&hm=c98e14f7f401410817207cae6235b8f19daeffe30b79cf74ca2d372343aae80c&=&format=webp&quality=lossless&width=919&height=919)
-(art/image used does NOT belong to me. [CTTO](https://danbooru.donmai.us/posts/5206862)
 
 <div align="left">
 PLZ C+H W MEEE I LOVE IT WHEN SOMEONE C+H W ME, IM VERY CHILL ANYFANDOMS WHATEV JUST C+H W ME ye dont have 2 ask for permission too!! just go for it!!! AND maybe chat threwww whispers tewwww :33 
