@@ -1,4 +1,4 @@
-[ａｔａ ｂｏｏｋ](https://yokanimitorete.atabook.org/)　| 　　  [ｓｔｒａｗｐａｇｅ](https://oceanasterism.straw.page/)
+[ａｔａ ｂｏｏｋ](https://yokanimitorete.atabook.org/)　　　| 　　  [ｓｔｒａｗｐａｇｅ](https://oceanasterism.straw.page/)
 
 ![Image](https://github.com/user-attachments/assets/3744b9d4-8b96-4bb4-a10b-05be945dc175)
 
