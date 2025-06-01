@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/df277972-6060-4366-88b1-f05913948a87)
+![Image](https://github.com/user-attachments/assets/3744b9d4-8b96-4bb4-a10b-05be945dc175)
 
 this GitHub can be seen with my vocaloids (mostly rin or other types of rin) or evillious chronicles cosplays/skins! because this alt account focuses on that!
 im usually with my friend Jex or Kara, or my party members which are mostly my close friends ^_^!
