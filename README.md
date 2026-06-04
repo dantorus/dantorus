@@ -4,4 +4,4 @@ this GitHub can be seen with my n25 skins or skins that i dont like along with m
 im usually with my two friends, Soap and Aiden or my party members ^_^!
 @[puppyfes](https://github.com/puppyfes) is my main 
 
-![:star:](https://komarev.com/ghpvc/?username=shiningumbreon&color=pink&label=🌸)
+![:star:](https://komarev.com/ghpvc/?username=shiningumbreon&color=red&label=🌸)
